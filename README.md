@@ -70,10 +70,7 @@ I focus on building **responsive, user-friendly web interfaces** and I’m activ
 
 ## 📫 Contact
 
-📧 Email: **abdurrahaman7042@gmail.com**  
-📱 Phone / WhatsApp: **+8801797886096**  
-🌐 Facebook: **facebook.com/wizard003**  
-📸 Instagram: **instagram.com/_blackout_freq**  
+📧 Email: **abdurrahaman7042@gmail.com**
 💼 LinkedIn: **linkedin.com/in/mohammad-abdur-rahaman**
 
 ---
